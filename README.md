@@ -1,1 +1,0 @@
-# synbyte.github.io
